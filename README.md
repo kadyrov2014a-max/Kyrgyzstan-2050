@@ -1,0 +1,2 @@
+# Kyrgyzstan-2050
+.
